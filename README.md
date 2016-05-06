@@ -1,2 +1,2 @@
 # Education
-All proposals on hove to improve the school system of the country go here.
+All proposals on how to improve the school system of the country go here.
